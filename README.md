@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming and vloging
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on partnership
-- 📫 How to reach me using YouTube my YouTube channel is
+- 📫 You can reach me to YouTube, this is my YouTube channel
       https://youtube.com/sjtechz
 
 <!---
